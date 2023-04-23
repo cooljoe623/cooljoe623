@@ -1,16 +1,17 @@
 ### Hi there 👋
 
-<!--
-**cooljoe623/cooljoe623** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Welcome☕to my Github profile.
 
-Here are some ideas to get you started:
+Here you find an enthusiastic programmer with various skills in computers.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Below are some of my hobbies: learning new programming languages💻♥
+
+                              hacking and breaking things🥰.
+                              
+                              trying out new coding challenges🕶💻
+                              
+                              exploring the dark/shadow webs✨🌚
+                              
+                              cybersecurity tryouts🥷🥷
+                              
+ Kindly contact if intrested in any of my works🤙🥺
