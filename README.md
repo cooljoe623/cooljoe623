@@ -15,3 +15,8 @@ Below are some of my hobbies: learning new programming languages💻♥
                               cybersecurity tryouts🥷🥷
                               
  Kindly contact if intrested in any of my works🤙🥺
+
+Writen and signed by📝✍:
+COOLJOE623..
+
+EMAIL: josephgichure692@gmail.com
